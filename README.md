@@ -1,1 +1,1 @@
-# mazahaul-islam
+# mazaharul-islam
